@@ -13,7 +13,7 @@
 
 ★‧₊˚ ☁️⋅ Star Wars, *Transformers*, Ninjago, *Squid Game*, Sonic
 
-☆・．❕「I'm **not** a Thanos fickin, irl, alter etc, I'm just using his name」
+☆・．❕「I'm **not** a Thanos fickin, irl, alter etc, just using his name」
 
 ·:*¨༺ ♱✮♱ ༻¨*:·
 
