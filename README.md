@@ -1,16 +1,20 @@
-## Hi there 👋
+![tumblr_63a6df82a1663ea9fe4cb222e6c6e698_bf137643_250](https://github.com/user-attachments/assets/373dd19a-0a9f-4296-bd03-6f2f1dbe1c5a) 
 
-<!--
-**Choi-SuBong/Choi-SuBong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+·:*¨༺ ♱✮♱ ༻¨*:·
 
-Here are some ideas to get you started:
+✩°｡ ⋆⸜ 🎧 ***Thanos‎!***
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+★📎 {} .. He/Him‎ ‎ 
+
+☆💬。・Aroace
+
+★‧₊˚ ☁️⋅ Star Wars, *Transformers*, Ninjago, *Squid Game*, Sonic
+
+☆・．❕「I'm **not** a Thanos fickin, irl, alter or anything like that, I'm just using his name lol」
+
+·:*¨༺ ♱✮♱ ༻¨*:·
+
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ![tumblr_2db52922ed3aec29f2d4a1ae616f722b_e11e3557_250](https://github.com/user-attachments/assets/68a69f12-92f2-498c-a735-2a69618ae950)
+
+
